@@ -58,4 +58,4 @@ If this policy changes, the updated version will appear in the app and at the sa
 
 ## Contact
 
-Questions about this policy: [CONTACT EMAIL]
+Questions about this policy: strain-fizzle-0d@icloud.com
